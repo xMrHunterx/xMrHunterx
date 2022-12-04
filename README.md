@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @xMrHunterx
-- 👀 I’m looking for information ablut where(websites) is worth to learn
+- 👀 I’m looking for information about where(websites) is worth to learn
